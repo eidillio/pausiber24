@@ -1,0 +1,1 @@
+#paüsiber'in eğitimine katıldım.
